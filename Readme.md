@@ -1,3 +1,2 @@
 hi ramakrishna
-
-xthcdkrcyjdcyjf
+what about skills.?
